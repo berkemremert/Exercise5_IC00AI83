@@ -1,0 +1,1 @@
+https://github.com/berkemremert/Exercise5_IC00AI83/blob/ad22d680b5e6d50f001cc5f9a2cf924800b34956/Exercise5_IC00AI83.pdf
